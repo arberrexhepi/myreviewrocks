@@ -1,2 +1,0 @@
-# myreviewrocks
-Reviews verified
